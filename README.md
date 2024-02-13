@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... working with business owners 
 - 🌱 I’m currently learning ... how to market my business 
 - 💞️ I’m looking to collaborate on ... lead generation 
-- 📫 How to reach me ... 8103940903 / faithunhinged@gmail.com
+- 📫 How to reach me ... 8103940903 / faithunhinged@gmail.com / https://blinq.me/SU7sHOxKXGUW?bs=db
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
